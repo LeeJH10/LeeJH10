@@ -1,3 +1,3 @@
-![rei.jpeg](https://github.com/LeeJH10/LeeJH10/blob/main/A099988E-7E6E-48FD-8F10-FE20BEBBEC18.jpeg?raw=true)
+![fumo.jpeg](https://github.com/LeeJH10/LeeJH10/blob/main/AB43487A-6BF1-436A-8CD9-20A66416EAFC.jpeg?raw=true)
 
 the scratch coder that is desperately trying to venture out into other languages
